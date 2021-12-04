@@ -1,1 +1,0 @@
-# Gravitational_Waves_LIGO_Virgo
